@@ -10,4 +10,16 @@ Esta experiencia de poder ayudar a otros emprendedores nos gratifica tanto que d
 Esperamos que disfrutes el material que iremos compartiendo y sobre todo que te sirva para llevar tu modelo de negocio al éxito.
 
 
+TE INVITO A QUE SIGAS DE CERCA EL MATERIAL COMPARTIDO:
 
+SITIO WEB
+https://martinaquino.com/
+
+YOUTUBE
+https://www.youtube.com/channel/UCnk_O64pKBGQ_RcsYSiva4Q?view_as=subscriber
+
+FACEBOOK
+https://www.facebook.com/martin4quino
+
+INSTAGRAM
+https://www.instagram.com/martin4quino/
